@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rahul Sharma
-**A passionate Data Analyst || Data cleaner || Kafka Admin from India**
+**A passionate Data Analyst || Data cleaner || from India**
 
 Email Me 👉 ✉️ **rahsharmaz465@gmail.com**  For Anything Else. 😊😊
 ## 🌐 Socials:
